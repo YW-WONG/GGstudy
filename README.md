@@ -1,0 +1,2 @@
+# GGstudy
+How to study
